@@ -33,4 +33,4 @@ I believe that **consistency, best practices, and product-driven thinking** are 
 ---
 
 ### 🔗 Let’s connect
-👉 **LinkedIn:** https://www.linkedin.com/in/pedro-henrique-maschio-b764461b7
+👉 [**LinkedIn**](https://www.linkedin.com/in/pedro-henrique-maschio-b764461b7)
